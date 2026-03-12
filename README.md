@@ -1,1 +1,0 @@
-# sondaggio-app-scuola-1
